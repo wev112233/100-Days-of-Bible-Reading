@@ -23,3 +23,10 @@
 **Chapter**: Genesis 4
 
 **Thoughts**: GOD respects us when we do good.
+
+### Day 5: 2019 July 3 Wednesday
+
+**Chapter**: Genesis 5
+
+**Thoughts**: Seth was in Adam's likeness and image... and not GOD'S.
+

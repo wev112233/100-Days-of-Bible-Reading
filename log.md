@@ -17,3 +17,9 @@
 **Chapter**: Genesis 3
 
 **Thoughts**: The serpent could talk to the woman. He didn't crawl on his belly before. We weren't suppose to have knowledge of good and evil.
+
+### Day 4: 2019 July 2 Tuesday
+
+**Chapter**: Genesis 4
+
+**Thoughts**: GOD respects us when we do good.

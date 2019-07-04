@@ -36,3 +36,8 @@
 **Thoughts**: Seth was in Adam's likeness and image... and not GOD'S.
 
 
+### Day 6: 2019 July 4 Thursday
+
+**Chapter**: Genesis 6
+
+**Thoughts**: Men's way became corrupted.

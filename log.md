@@ -43,7 +43,7 @@
 **Thoughts**: Men's way became corrupted.
 
 
-### Day 7: 2019 July 5 Thursday
+### Day 7: 2019 July 5 Friday
 
 **Chapter**: Genesis 7
 

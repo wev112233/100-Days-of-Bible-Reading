@@ -41,3 +41,10 @@
 **Chapter**: Genesis 6
 
 **Thoughts**: Men's way became corrupted.
+
+
+### Day 7: 2019 July 5 Thursday
+
+**Chapter**: Genesis 7
+
+**Thoughts**: Noah did everything that GOD commanded him.

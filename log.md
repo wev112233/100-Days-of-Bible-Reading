@@ -48,3 +48,10 @@
 **Chapter**: Genesis 7
 
 **Thoughts**: Noah did everything that GOD commanded him.
+
+
+### Day 1: 2020 January 7 Tuesday
+
+**Chapter**: Genesis 8
+
+**Thoughts**: GOD will never again smite every living thing as HE did in the flood.

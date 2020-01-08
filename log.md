@@ -55,3 +55,10 @@
 **Chapter**: Genesis 8
 
 **Thoughts**: GOD will never again smite every living thing as HE did in the flood.
+
+
+### Day 2: 2020 January 8 Wednesday
+
+**Chapter**: Genesis 9
+
+**Thoughts**: Everything that lives and moves is given for food for us humans. Every animal and bird and fish are afraid of us
